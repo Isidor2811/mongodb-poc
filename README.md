@@ -1,0 +1,1 @@
+All info you can find here: https://www.notion.so/odatsiuk/MongoDB-104fe1de625e4c41bc6318cdacc2d1dd
